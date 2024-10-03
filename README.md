@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying at Campusland.<br><br>I am a person who likes to work in a team. <br>Collaboration and cooperation are key <br>elements of my working style.<br><br>I love being in constant self-learning, always <br>seeking new knowledge and skills to improve <br>myself both personally and professionally.<br><br>
+
 
 
 ## 🌐 Socials:
